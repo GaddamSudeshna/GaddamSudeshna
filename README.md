@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning DEVOPS and DSA
 - 💞️ I’m looking to collaborate on some main projects
 - 📫 How to reach me msg me
-- 😄 Pronouns: ...
+- 😄 Pronouns: CR,Angry Bird
 - ⚡ Fun fact: I LOVE LEARNING
 
 <!---
